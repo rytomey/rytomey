@@ -1,4 +1,4 @@
-# Hi, I’m [Rylee Tomey] (@[rytomey])
+# Hi, I’m Rylee Tomey
 
 **Current Position**: Graduate Research Assistant, PhD Candidate  
 Research focused on integrating diverse data sources into population models to guide decision-making for **White-tailed Deer management in Alabama and beyond**.
