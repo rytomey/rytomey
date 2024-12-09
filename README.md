@@ -6,11 +6,9 @@
 
 ---
 
-📫 [Email](mailto:rdt0029@auburn.edu)  🌐 [Lab Website](https://valentelab.auburn.edu/)  
-
----
-
 🌍📊🌿 **Interests**: OneHealth, Zoonotic Diseases, Population Modeling 
+
+📫 [Email](mailto:rdt0029@auburn.edu)  🌐 [Lab Website](https://valentelab.auburn.edu/)  
 
 
 
