@@ -1,4 +1,3 @@
-# Hi, I’m Rylee Tomey  
 🔬🦌 **Graduate Research Assistant, PhD Candidate**  
 Focused on **White-tailed Deer management in Alabama and beyond**.  
 
