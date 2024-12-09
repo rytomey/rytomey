@@ -6,7 +6,7 @@ Focused on **White-tailed Deer management in Alabama and beyond**.
 
 ### Academics  
 🎓 **Purdue University** (BS) → **Auburn University** (MS)  
-📚 **MS Thesis**: Rabies epizootiology  
+🦠 **MS Thesis**: Rabies epizootiology  
 
 ---
 
