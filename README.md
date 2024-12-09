@@ -1,17 +1,12 @@
-🔬🦌 **Graduate Research Assistant, PhD Candidate**  
-Focused on **White-tailed Deer management in Alabama and beyond**.  
-
----
-
-### Academics  
-🎓 **Purdue University** (BS) → **Auburn University** (MS)  
+🔬 **Academic Journey**:  
+🎓 **Purdue University** (BS) → **Auburn University** (MS, Current PhD Candidate)  
 🦠 **MS Thesis**: Rabies epizootiology  
+🦌 **PhD Research**: Integrated White-tailed Deer population modeling  
 
 ---
 
 📫 **Email**: [rdt0029@auburn.edu](mailto:rdt0029@auburn.edu)  
 🌐 **Lab**: [Valenté Lab Website](https://valentelab.auburn.edu/)  
-
 
 
 
