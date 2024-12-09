@@ -1,6 +1,6 @@
-**Graduate Research Assistant, Wildlife Sciences**
+🏞️🔬 **Graduate Research Assistant, Wildlife Sciences** 
 
-🔬 **Purdue University** (BS) → **Auburn University** (MS, Current PhD Candidate)  
+📚 **Purdue University** (BS) → **Auburn University** (MS, Current PhD Candidate)  
 🦠 **MS Thesis**: Rabies epizootiology  
 🦌 **PhD Research**: Integrated White-tailed Deer population modeling  
 
@@ -10,7 +10,7 @@
 
 ---
 
-📊🌍🌿 **Interests**: OneHealth, Zoonoses, Environmental Health Literacy, Integrated Modeling 
+🌍📊🌿 **Interests**: OneHealth, Zoonoses, Environmental Health Literacy, Population Modeling 
 
 
 
