@@ -1,5 +1,4 @@
-🔬 ### Academics:  
-🎓 **Purdue University** (BS) → **Auburn University** (MS, Current PhD Candidate)  
+🔬 **Purdue University** (BS) → **Auburn University** (MS, Current PhD Candidate)  
 🦠 **MS Thesis**: Rabies epizootiology  
 🦌 **PhD Research**: Integrated White-tailed Deer population modeling  
 
