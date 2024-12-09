@@ -10,7 +10,7 @@
 
 ---
 
-🌍📊🌿 **Interests**: OneHealth, Zoonoses, Environmental Health Literacy, Population Modeling 
+🌍📊🌿 **Interests**: OneHealth, Zoonotic Diseases, Population Modeling 
 
 
 
