@@ -6,7 +6,7 @@
 
 ---
 
-📫 **Email**: [rdt0029@auburn.edu](mailto:rdt0029@auburn.edu)  🌐 **Lab**: [Valenté Lab Website](https://valentelab.auburn.edu/)  
+📫 **[Email](mailto:rdt0029@auburn.edu)  🌐 **[Valente Biodiversity Conservation Lab](https://valentelab.auburn.edu/)  
 
 ---
 
