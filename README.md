@@ -6,7 +6,7 @@
 
 ---
 
-🌍📊🌿 **Interests**: OneHealth, Zoonotic Diseases, Population Modeling 
+🌍📊🌿 **Interests**: Wildlife, OneHealth, Population Modeling, Zoonotic Diseases 
 
 📫 [Email](mailto:rdt0029@auburn.edu)  🌐 [Lab Website](https://valentelab.auburn.edu/)  
 
