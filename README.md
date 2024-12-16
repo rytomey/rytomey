@@ -1,6 +1,6 @@
 🏞️🔬 **Graduate Research Assistant, Wildlife Sciences** 
 
-🏛️ **Purdue University** (BS) → **Auburn University** (MS, Current PhD Candidate)  
+🏛️ **Purdue University** (BS) → **Auburn University** (MS, PhD Candidate)  
 🦠 **MS**: Rabies epizootiology  
 🦌 **PhD**: Integrated White-tailed Deer population modeling  
 
