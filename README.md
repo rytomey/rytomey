@@ -1,7 +1,9 @@
 ## 🌎🔬💡🏞️ Welcome 🪚🥖🗺️💼🪴
 
 Profession: **wildlife scientist** with an eccentric collection of hobbies such as baking, carpentry, gardening, and sewing
+
 Principles: Authenticity · Kindness · Honesty · Tenacity · Curiosity
+
 Profiles: 
 [![LinkedIn](https://img.shields.io/badge/LinkedIn-3D5A80?logo=linkedin&logoColor=white)](https://www.linkedin.com/in/rylee-tomey-206876170/)
 [![GitHub](https://img.shields.io/badge/GitHub-2D3436?logo=github&logoColor=white)](https://github.com/rytomey)
