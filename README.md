@@ -3,6 +3,7 @@
 Full-time **wildlife scientist** with an eccentric collection of hobbies that include baking, carpentry, gardening, and sewing.
 
 Guiding principles: Authenticity · Kindness · Honesty · Tenacity
+
 ---
 [![Email](https://img.shields.io/badge/Email-EA4335?logo=gmail&logoColor=white)](mailto:ryleetomey@yahoo.com)
 [![LinkedIn](https://img.shields.io/badge/LinkedIn-0077B5?logo=linkedin&logoColor=white)](https://www.linkedin.com/in/rylee-tomey-206876170/)
