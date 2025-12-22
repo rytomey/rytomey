@@ -1,6 +1,7 @@
-## 🌎🔬💡🏞️ Welcome 🪚🥖🗺️💼🪴
+# 🌎🔬💡🏞️ Welcome 🪚🥖🗺️💼🪴
 
 Full-time **wildlife scientist** with an eccentric collection of hobbies that include baking, carpentry, gardening, and sewing.
+
 Guiding principles: Authenticity · Kindness · Honesty · Tenacity
 ---
 [![Email](https://img.shields.io/badge/Email-EA4335?logo=gmail&logoColor=white)](mailto:ryleetomey@yahoo.com)
