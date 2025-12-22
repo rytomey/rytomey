@@ -11,4 +11,4 @@ Authenticity · Kindness · Honesty · Tenacity · Curiosity
 [![Instagram](https://img.shields.io/badge/Instagram-6B705C?logo=instagram&logoColor=white)](https://www.instagram.com/ryleetomey/)
 [![TikTok](https://img.shields.io/badge/TikTok-344E41?logo=tiktok&logoColor=white)](https://www.tiktok.com/@golden_goose7)
 
-Inquiries, opportunities, ideas?  [![Let's connect!](https://img.shields.io/badge/Contact-7B9EA8?logo=gmail&logoColor=white)](mailto:ryleetomey@yahoo.com)
+Inquiries, opportunities, ideas?  [![Let's connect!](https://img.shields.io/badge/Email-7B9EA8?logo=gmail&logoColor=white)](mailto:ryleetomey@yahoo.com)
