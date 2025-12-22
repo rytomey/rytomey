@@ -1,4 +1,4 @@
-##E 🌎🔬💡🏞️ Welcome 🪚🥖🗺️💼🪴
+###🌎🔬💡🏞️ Welcome 🪚🥖🗺️💼🪴
 
 **Wildlife scientist** with an eccentric collection of hobbies such as baking, carpentry, gardening, and sewing
 
